@@ -18,5 +18,5 @@
 - Semester 1 lab projects and building daily problem-solving habits
 
 ## Connect With Me
-- LinkedIn : [Your LinkedIn Profile URL]
+- LinkedIn : [Harsh Tomar](https://www.linkedin.com/in/harsh-tomar-503081433)
 - Email :2601730006@krmu.edu.in
